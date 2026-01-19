@@ -33,6 +33,4 @@ Here are some ideas to get you started:
   
 
 ### 📬 e m a i l 📬
-  
-tinskyblue951030@gmail.com<br>
 tinskyblue@naver.com
